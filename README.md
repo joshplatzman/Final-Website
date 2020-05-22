@@ -6,6 +6,7 @@
 
 I was born in Brooklyn, New York on December 27, 2002 at Maimonides Medical Center Hospital. I am currently 17 years old and live in East Brunswick, New Jersey. 
 I have an older brother named Sam and a younger brother named Matt, who are 18 and 13 years old. Matt and I share the exact same birthday, four years apart. 
+I love playing basketball and videogames, and hanging out with my friends. 
 
 ### Resume
 
