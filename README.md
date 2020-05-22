@@ -11,7 +11,6 @@ I was born in Brooklyn, New York on December 27, 2002 at Maimonides Medical Cent
 
 ### Contact
 
-[Twitter](https://twitter.com/JPlatzman)
+[Twitter](https://twitter.com/JPlatzman) &
 [Instagram](https://www.instagram.com/joshplatzman/?hl=en)
 
-Email: jplatzman@ebnet.org
