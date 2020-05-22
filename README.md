@@ -28,8 +28,8 @@ Executive Board for Waksman
 ```
 Community Service
 ```
-1. Buddy Ball
-2. Hackensack Meridian Raritan Bay Medical Center
+Buddy Ball
+Hackensack Meridian Raritan Bay Medical Center
 ```
 
 ### Social Media
