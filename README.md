@@ -34,8 +34,8 @@ Hackensack Meridian Raritan Bay Medical Center
 ```
 Clubs & Other
 ```
-Jewish Student Union
 Social Studies Honor Society
+Jewish Student Union
 USY
 BBYO
 ```
