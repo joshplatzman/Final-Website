@@ -9,6 +9,23 @@ I have an older brother named Sam and a younger brother named Matt, who are 18 a
 
 ### Resume
 
+Summer Programs
+```
+Penn Med 
+Rutgers Summer Scholars
+```
+Work Experience 
+```
+Eagles Landing Day Camp
+```
+Certifications
+```
+CPR Certified
+```
+Extracuriculars
+```
+Executive Board for Waksman
+```
 Community Service
 ```
 1. Buddy Ball
