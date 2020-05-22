@@ -32,6 +32,13 @@ Community Service
 Buddy Ball
 Hackensack Meridian Raritan Bay Medical Center
 ```
+Clubs & Other
+```
+Jewish Student Union
+Social Studies Honor Society
+USY
+BBYO
+```
 
 ### Social Media
 
